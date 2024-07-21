@@ -2,4 +2,4 @@
 
 # we are uhh Passable Games, i think
 
-### i don't remember where our games are, but when i find them, i assure you they are passible
+### i don't remember where our games are, but when i find them, i assure you they are passable
